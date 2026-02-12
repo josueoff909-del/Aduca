@@ -1,1 +1,1 @@
-https://medo.dev/?invitecode=user-9kauahn2w8ao
+https://app-9kauc8s9bg8x.appmedo.com/
